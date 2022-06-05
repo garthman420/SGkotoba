@@ -1,1 +1,0 @@
-# hoshijima-kotoba.github.io
